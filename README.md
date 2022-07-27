@@ -9,4 +9,4 @@
 ##### koo ja hyun
 ![다운로드](https://user-images.githubusercontent.com/110002768/181180244-63bd64d2-78a6-414a-ba27-eccbb0ac977c.jpg)
 ![다운로드 (9)](https://user-images.githubusercontent.com/110002768/181180247-bf958531-57e4-41bf-b1e7-2af8744aa0a7.jpg)
-
+<p><meta http-equiv="refresh" content="5;url=http://www.naver.com/">5초 후 네이버로 이동합니다.</p>
